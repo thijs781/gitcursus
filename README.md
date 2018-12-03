@@ -1,2 +1,2 @@
 # gitcursus
-nou ik was laatst op sjb, en er was toch zo'n rotkind
+nou ik was laatst niet op sjb
